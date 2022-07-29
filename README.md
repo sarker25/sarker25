@@ -17,7 +17,7 @@
 
 
 
-#### For Hire
+
 :email: &emsp;shahadathsarker2@gmail.com
 
 
